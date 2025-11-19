@@ -1,3 +1,5 @@
+
+<img src="https://www.1lve.com/wp-content/uploads/2024/08/2021121302570996.png">
 # 亲测自用WordPress总裁主题4.3.0
 
 ## 资源描述
